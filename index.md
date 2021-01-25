@@ -1,3 +1,7 @@
-# Welcome to my blog
+This here be a bunch of stuff.
+#
+wait until we come up with some more stuff to add to the stuff that's already here.
 
-I'm glad you are here. I plan to talk about ...
+we will see in the near future
+
+this is the new lines to add to this thing.
